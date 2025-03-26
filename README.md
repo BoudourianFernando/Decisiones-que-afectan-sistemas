@@ -1,1 +1,2 @@
 # Decisiones-que-afectan-sistemas
+El conflicto en el Congo ilustra cómo una mala gestión geopolítica puede romper arquitecturas complejas. La UE eligió alianzas estratégicas con Ruanda pese a alertas internacionales. Esta “deuda técnica” política erosiona credibilidad y genera inestabilidad en el sistema regional. Como en cualquier red mal conectada, los errores se amplifican con cada acción. Código roto, consecuencias reales.
